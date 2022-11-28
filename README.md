@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @seuksavanhv
-- 👀 I’m interested in ... Cars and Video games
+- 👀 I’m interested in ... cars, motorcycles and Video games
 - 🌱 I’m currently learning ... Web developement with Angela Yu on Udemy
 - 💞️ I’m looking to collaborate on ... Job opportunities
 - 📫 How to reach me ... seuksavanh_v@hotmail.com
